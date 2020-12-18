@@ -72,4 +72,3 @@
 
 <p style="text-align: center;"><a href="https://www.killerdumps.com/comptia-220-1001-braindumps" rel="nofollow"><img width="100%" src="https://lh3.googleusercontent.com/pw/ACtC-3fDiTVMPj4dF0yR-EPu0DrLw3DIniqZRpBNeP5kQHS80BBBW_he7MwuengOggCrpEx7eCJykvLTvtmIbpQzYpuBocHOQmB9ugFJHTO94VJimSvW6BZHv0YP-ifqDCCl5kISxrR07atyusRzygqwSnoo=w1252-h657-no?authuser=0" alt="Banner"/></a></p>
 
-<p><strong>Checkout Related Exam:</strong></p>
